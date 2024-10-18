@@ -14,6 +14,8 @@ I have 7+ years of experience in the pharmaceutical industry, and I am currently
 ![image](https://github.com/user-attachments/assets/1cf39d7b-1b1e-413d-bb25-f3ac57515021)
 ![image](https://github.com/user-attachments/assets/6893970e-58b3-4118-a9a6-24a06593982c)
 ![image](https://github.com/user-attachments/assets/88a72fc5-48e2-4a25-a095-231870bdafd3)
+![image](https://github.com/user-attachments/assets/8f80e08d-fb33-4d7d-bf99-3351ef43ab82)
+
 
 
 
